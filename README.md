@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @palio19888
-- 👀 I’m interested in ... programador.     
+- 👀 I’m interested in ... programar,desenvolver,e testar software e aplicativos.    
 - 🌱 I’m currently learning ... beck-end
 - 💞️ I’m looking to collaborate on ... com desenvolvimento na área de tecnologia para as melhores empresa no mercado.
 - 📫 How to reach me ... entrando em contato pelo> (081) 98778-7599
